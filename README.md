@@ -1,1 +1,0 @@
-# mwayrtl.github.io
